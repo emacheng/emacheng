@@ -1,5 +1,5 @@
 I’m @emacheng
 ## Why?
-I'm going to use this as my main tool for my undergraduate final project
+Because this is the real social media
 ## Now
-  Currently studyng Electrical Engineering at UIS (Colombia)
+Currently studyng Electrical Engineering at UIS (Colombia)
